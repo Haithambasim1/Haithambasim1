@@ -59,8 +59,8 @@ Building real-world products with clean, scalable code 🚀
 ---
 
 ### 📫 Contact Me
-- 💼 LinkedIn: https://linkedin.com
-- 📧 Email: your-email@example.com
+- Whatsapp: +972597813108
+- 📧 Email: haitham.bmohasin@gmail.com
 
 ---
 
